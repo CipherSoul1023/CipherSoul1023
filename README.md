@@ -4,7 +4,7 @@
 
 🚀 **Founder of your next favourite company**
 
-🤖 Aspiring AI Engineer  
+🤖 Aspiring Software Engineer
 🧠 Machine Learning • Software Engineering • AI Systems  
 💡 Professional “what if we built this?” person
 
